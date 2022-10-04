@@ -1,1 +1,2 @@
 presentacoin lokisima
+💯: 
